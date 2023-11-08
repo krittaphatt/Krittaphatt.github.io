@@ -6,20 +6,20 @@
 
 # Education
 * **Bachelor's Degree in Business Management**  
-  Payap University, Chiang Mai, Thailand  
+   
   _Graduated with a strong academic record, demonstrating proficiency in business principles and management strategies._
 
 # Experience
 * **Intern at Puen Chang Company**  
-  Chiang Mai, Thailand
+  
   _Gained practical experience in the business field during an internship, assisting with data analysis and market research._
 
 * **Student Representative at Payap University**  
-  Chiang Mai, Thailand
+ 
   _Demonstrating leadership and communication skills while representing fellow students' interests._
 
 * **Part-Time Retail Sales Associate**  
-  Chiang Mai, Thailand
+  
   _Worked as a part-time sales associate, developing customer service and sales skills while maintaining positive customer relations._
 
 # Interests
