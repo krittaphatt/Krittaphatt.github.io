@@ -16,7 +16,7 @@
 
 * **Student Representative at Payap University**  
   Chiang Mai, Thailand
-  _Example: Elected as a student representative, demonstrating leadership and communication skills while representing fellow students' interests._
+  _Example: Demonstrating leadership and communication skills while representing fellow students' interests._
 
 * **Part-Time Retail Sales Associate**  
   Chiang Mai, Thailand
