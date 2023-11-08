@@ -10,7 +10,7 @@
   _Example: Graduated with a strong academic record, demonstrating proficiency in business principles and management strategies._
 
 # Experience
-* **Intern at XYZ Company**  
+* **Intern at Puen Chang Company**  
   Chiang Mai, Thailand
   _Example: Gained practical experience in the business field during an internship, assisting with data analysis and market research._
 
